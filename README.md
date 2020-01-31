@@ -1,0 +1,1 @@
+# Proverbs-30-6-Every-word-of-the-Lord-is-pure
